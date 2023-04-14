@@ -24,3 +24,9 @@ https://user-images.githubusercontent.com/91461743/232003553-e365c106-f280-4199-
 ![WhatsApp Image 2023-04-13 at 00 08 48](https://user-images.githubusercontent.com/91461743/232018567-ff16e3b2-2e71-441f-af0f-908a4ab9bca0.jpg)
 
 
+
+[chiraag shivajirao poal TechRoadies Participation Certificate (1).pdf](https://github.com/cpoal007/marvel_pic_vids/files/11231746/chiraag.shivajirao.poal.TechRoadies.Participation.Certificate.1.pdf)
+![Screenshot 2023-04-14 155551](https://user-images.githubusercontent.com/91461743/232019913-9972a68f-a3c4-42eb-b972-65f67c9c7998.png)
+
+
+![MV5BNmM2M2VmMWItODMzZC00ODNjLWE1NTEtYzZlY2FhMTkyMzFjL2ltYWdlXkEyXkFqcGdeQXVyNDA2OTUwMzI@ _V1_FMjpg_UX1000_](https://user-images.githubusercontent.com/91461743/232020357-dd4e0a8b-746d-40a9-89e6-982392073b65.jpg)
